@@ -4,4 +4,4 @@
 - me chamo Ana 🙊
 - 🌱 Gosto de lirios 
 - 👯 gosto de dançar
-- 🤔 gosto de arender
+- 🤔 gosto de aprender
